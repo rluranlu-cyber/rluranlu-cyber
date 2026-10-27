@@ -28,4 +28,4 @@ Humanistic artist and Idealist. 🫎
 
 # Amor Fati!
 
-(👉ﾟヮﾟ)👉  👈(ﾟヮﾟ👈)
+(👉ﾟヮﾟ)👉  👈(ﾟヮﾟ👈) (:≡
